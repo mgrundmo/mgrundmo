@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mgrundmo
-- 👀 I’m interested in sience and fotography
+- 👀 I’m interested in sience and photography
 - 🌱 I’m currently learning computer sience
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
